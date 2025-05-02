@@ -1,0 +1,1 @@
+# Javascrip-ile-cumle-qur-ve-qoster
